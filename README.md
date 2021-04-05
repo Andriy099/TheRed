@@ -1,2 +1,0 @@
-# TheRed
-TheRed Company
